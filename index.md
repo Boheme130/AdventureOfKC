@@ -62,8 +62,6 @@ Joe和Rosa的儿子Tommy意外相识，最终Tommy促成了三人重聚，Joe来
 
 
 <br>
-<br>
-<br>
 
 ![avatar](https://d2lzb5v10mb0lj.cloudfront.net/darkhorse/downloads/desktops/escapist5/escapist5_lg.jpg)
 <br>
