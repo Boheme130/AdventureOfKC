@@ -54,3 +54,17 @@ Joe和Rosa的儿子Tommy意外相识，最终Tommy促成了三人重聚，Joe来
 
 ## Tracy Bacon
 作为Sammy唯一的男友，Bacon改变了Sammy一生的走向。他的名字，培根(Bacon)是用猪肉做成的，而在犹太教里，猪肉属于不洁食品，犹太人是不可以享用的。作为犹太人的Sammy和他恋爱自然是打破了各种传统和束缚的举动。当Sammy第一次带着Tracy Bacon见母亲时，他感觉自己就像往家里带了块全世界最大的“trayf”(犹太教里的不洁食品)，而trayf而Tracy的名又非常巧合地押韵了。Tracy的存在丰富了作品“逃脱”的主题，他帮助Sammy摆脱了性取向的束缚，即便这种解脱是暂时的，Sammy往后也不断受到Tracy的影响。
+
+
+
+<br>
+<br>
+## 更多漫画欣赏：
+![avatar](https://d2lzb5v10mb0lj.cloudfront.net/darkhorse/downloads/desktops/escapist5/escapist5_lg.jpg)
+<br>
+![avatar](https://d1466nnw0ex81e.cloudfront.net/n_iv/600/1105565.jpg)
+<br>
+![avatar](https://d2lzb5v10mb0lj.cloudfront.net/common/salestools/previews/escap1/escap1p1.jpg)
+<br>
+![avatar](https://d2lzb5v10mb0lj.cloudfront.net/covers/300/10/10235.jpg)
+<br>
