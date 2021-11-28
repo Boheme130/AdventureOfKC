@@ -1,7 +1,7 @@
 ## The Amazing Adventures of Kavalier and Clay
 [回到主页](https://boheme130.github.io/Fiction.git.io/)
 
-![avatar](https://m.media-amazon.com/images/I/61ibvYhnSqL._SL500_.jpg)
+![avatar](https://graphicnovelty2.files.wordpress.com/2020/03/kavalierclay-escapist.jpg)
 <br>
 <br>
 
