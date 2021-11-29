@@ -71,6 +71,3 @@ Joe和Rosa的儿子Tommy意外相识，最终Tommy促成了三人重聚，Joe来
 
 ![avatar](https://d2lzb5v10mb0lj.cloudfront.net/common/salestools/previews/escap1/escap1p1.jpg)
 <br>
-
-![avatar](https://d2lzb5v10mb0lj.cloudfront.net/covers/300/10/10235.jpg)
-<br>
